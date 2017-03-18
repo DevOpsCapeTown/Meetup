@@ -19,3 +19,8 @@
 ## Step four
 
 - Ask #asktheadmins in Zatech to announce the meetup
+
+## On the day
+
+- Order pizza (if needed). RSVPS / 3 == number of pizzas to order
+- Make sure beer arrives
